@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @diprayogo
-- 👀 I’m interested in Tech-Stuffs, in progress of having fun with CP
-- 🌱 I’m currently learning Web Development and Data Science.
-- 💞️ I’m looking to collaborate on Cool Projects
+- 👀 I’m interested in Tech-Stuffs (as Geek (?)), in progress and having fun with CP
+- 🌱 I’m currently learning Web Development and Data Science
+- 💞️ I’m looking to collaborate on Projects
 - 📫 How to reach me? Email me diprayogo45@gmail.com
 
 <!---

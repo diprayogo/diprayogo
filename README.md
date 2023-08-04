@@ -1,3 +1,5 @@
+Help me find my blindspots, please kindly send me email
+
 - 👋 Hi, I’m @diprayogo, frameworks and tools enthusiast, ...
 -    still a procratinator (passive actor, active reader) until 20 Aug 2023,
 -    previously: scroll tiktok and youtube,

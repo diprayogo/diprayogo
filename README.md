@@ -1,6 +1,6 @@
 Help me find my blindspots, please kindly send me email
 
-- 👋 Hi, I’m @diprayogo, frameworks, tools, and packages/libs enthusiast, currently easy to be overwhelmed & distracted. I hope no ADHD within my self
+- 👋 Hi, I’m @diprayogo, frameworks, tools, and packages/libs enthusiast. Bismillah, no more easy to be overwhelmed & distracted, let ADHD within my self being (Tech) Consultant/Product Manager. 
 - 👀 I’m interested in tech
 - 🌱 I’m currently learning Web Development and AI/ML
 - 💞️ I’m looking to collaborate on Projects

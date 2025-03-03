@@ -1,5 +1,4 @@
-Ramadan Mubarak! May this holy month bring peace all over the world.
-Fixing my skills issue, Bismillah 🫡💪
+Ramadan Mubarak! May this holy month bring peace all over the world 😇🙏 Fighting the feeling I hate, Forcing myself starting again in this job, Fixing my skills issue, Bismillah 🫡💪
 
 <!---
 Help me find my blindspots, please kindly send me email
